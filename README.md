@@ -3,7 +3,7 @@
 
 **[XEM TẠI ĐÂY ➣➣ Alien: Romulus Hiện Đang PHÁT TRỰC TUYẾN](https://playhdmovie.co/vi/movie/945961/alien-romulus)**
 
-** [TẢI NGAY ➣➣Alien: Romulus Bây giờ FULL HD MIỄN PHÍ](https://playhdmovie.co/en/movie/945961/alien-romulus)**
+**[TẢI NGAY ➣➣Alien: Romulus Bây giờ FULL HD MIỄN PHÍ](https://playhdmovie.co/en/movie/945961/alien-romulus)**
 
 [![ju](https://camo.githubusercontent.com/7f6f88830ea72d49540cad466f7218e4623560163f263a8577ac8297d75fe095/68747470733a2f2f7777772e746563686d65686f772e636f6d2f77702d636f6e74656e742f75706c6f6164732f323032342f30332f72676273727465672e676966)](https://playhdmovie.co/vi/movie/945961/alien-romulus)
 
